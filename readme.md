@@ -1,1 +1,1 @@
-I know a secret, i know a secret too 
+(mike)I know a secret (tommy)i know a secret too (edward) yea, me too man
